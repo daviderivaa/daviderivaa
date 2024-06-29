@@ -11,7 +11,11 @@ I am interested in particle physics from a theoretical and computational approac
 - **Physics Bachelor Degree**, Università degli Studi di Milano
 
 ## 🎶 Interests
-- 🎹 Playing piano (or trying to with whatever comes to my hand) (https://open.spotify.com/artist/3Z5umnRIvZPhXMmauNVjEK?si=66OYc_VMSjqgpLQPzZbF3A)
-- 🎭 Theater (https://chescenaeteatro.wixsite.com/che-scena-e)
+- 🎹 Playing piano (or trying to with whatever comes to my hand)
+    https://open.spotify.com/artist/3Z5umnRIvZPhXMmauNVjEK?si=66OYc_VMSjqgpLQPzZbF3A
+    https://www.instagram.com/aupipalma?igsh=MTNsZW9ocm1yMWxuYQ==
+- 🎭 Theater 
+    https://chescenaeteatro.wixsite.com/che-scena-e
+    https://www.instagram.com/chescenae?igsh=MWZqaXhzczE5YWFhOQ==
 - ⚛️ Physics
 - 👥 Doing all of them with friends
