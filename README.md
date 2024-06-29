@@ -10,8 +10,8 @@ I am interested in particle physics from a theoretical and computational approac
 - **Physics Master**, Università degli Studi di Milano (ongoing)
 - **Physics bachelor degree**, Università degli Studi di Milano
 
-## 🎶 Interessi
+## 🎶 Interests
 - 🎹 Playing piano (https://open.spotify.com/artist/3Z5umnRIvZPhXMmauNVjEK?si=66OYc_VMSjqgpLQPzZbF3A)
 - 🎭 Theater
 - ⚛️ Physics
-- 👥 Making all of them with friends
+- 👥 Doing all of them with friends
