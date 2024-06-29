@@ -12,6 +12,6 @@ I am interested in particle physics from a theoretical and computational approac
 
 ## 🎶 Interests
 - 🎹 Playing piano (https://open.spotify.com/artist/3Z5umnRIvZPhXMmauNVjEK?si=66OYc_VMSjqgpLQPzZbF3A)
-- 🎭 Theater
+- 🎭 Theater (https://chescenaeteatro.wixsite.com/che-scena-e)
 - ⚛️ Physics
 - 👥 Doing all of them with friends
